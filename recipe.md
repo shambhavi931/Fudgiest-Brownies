@@ -1,15 +1,3 @@
-HELLO...
-welcome to masterchef junior season 1 
-where our little tiny tots are going to showcase their talent by making delicious recipes which will be judged by our experts
-so the first dish will be made by shambhavi ,our very first contestant...and she will make yummy brownies...
-so lets start this show with some fudgiest brownies...
-
-
-
-
-
-
-
 HOW TO MAKE BROWNIES- (RECIPE)
 First, add together the dry and wet ingredients in a bowl
 whisk it until it becomes slightly liquidy in nature 
